@@ -1,2 +1,2 @@
 # hello-world
-Just another repository for me to learn
+“Remove everything pointless from an imperfect life and it’d lose even its imperfection.” 
